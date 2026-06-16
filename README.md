@@ -8,7 +8,7 @@
  <div align="center"> <img width="98" height="56" alt="Image" src="https://github.com/user-attachments/assets/f9d0dada-a764-4068-a15e-67722ed96d63" />
 
  
-<div align="center"> mangle fictkin + lolbit, funtime foxy, elizabeth, cassidy and shadow bonnie heavy kin .  interact with extreme caution at all times
+<div align="center"> mangle and vanny fictkin + lolbit, funtime foxy, elizabeth, cassidy and shadow bonnie heavy kin .  interact with extreme caution at all times
 
 ‎ 
 <div align="center"> basic DNI criteria ,  more in strawpage .  please sign ata ... ok? ok !!
