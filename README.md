@@ -3,7 +3,7 @@
  <div align="center"> 
 
 
- [bonnie](https://github.com/R0CKETLAUNCHER) ‹𝟹 [toy chica](https://github.com/SweetMeIodys) ୨ৎ [puppet](https://github.com/nightstrider)
+ [bonnie](https://github.com/R0CKETLAUNCHER) ‹𝟹 [toy chica](https://github.com/SweetMeIodys) ୨ৎ [puppet](https://github.com/nightstrider) ✧˖ [funtime foxy](https://github.com/wubism)
 
 <div align="center"> ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 <div align="center"> .
