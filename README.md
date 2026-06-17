@@ -1,7 +1,12 @@
 <div align="center"> <img width="520" height="480" alt="Image" src="https://github.com/user-attachments/assets/23f5eb53-437e-484f-b85f-2993afdaf438" />
 
-<div align="center"> 
+ <div align="center"> 
 
+
+ [bonnie](https://github.com/R0CKETLAUNCHER) ‹𝟹 [toy chica](https://github.com/SweetMeIodys)
+
+<div align="center"> ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
+<div align="center"> .
 
  [atabook](https://malharejayexe.atabook.org/) ʚ⟡ɞ [straw](https://malhareexelolz.straw.page)
 
