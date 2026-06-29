@@ -29,3 +29,9 @@
 <p align="center"> mentally disabled , please be patient with me
 
 <p align="center"> basic DNI + proshippers/darkshippers DNI eww ew , more info in straw . please sign ata ... ok ?? ok !!
+
+<p align="center"> PLEASE PLEASE READ FOR AWARENESS !! someone screenshotted our mangle kinsona posting her on pinterest labelling her as "free to use" PLEASE we are genuinely on our knees DO. NOT. COPY. THAT. that is OUR very personal sona of mangle and DO NOT condone copying. if we catch you with a copy of our kinsona we will block and report you
+ 
+<img width="1080" height="2400" alt="Image" src="https://github.com/user-attachments/assets/de9be375-d479-4247-87f7-a5be338bc3b3" />
+
+<img width="1080" height="2400" alt="Image" src="https://github.com/user-attachments/assets/018a4018-56ad-4dfc-9c3f-aa48a908f124" />
